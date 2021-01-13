@@ -1,0 +1,1 @@
+# Atividade6-Analise-de-Imagens
